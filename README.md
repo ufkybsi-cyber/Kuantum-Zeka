@@ -1,0 +1,2 @@
+# Kuantum-Zeka
+Bilgi güçtür
